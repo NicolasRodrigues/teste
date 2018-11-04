@@ -7,3 +7,5 @@
 "masquared, every face in differente shape"
 "think of me"
 "the phaantom of the opera is there"
+"primadona once more"
+"nothing in my way"
