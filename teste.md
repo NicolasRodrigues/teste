@@ -9,4 +9,4 @@
 "the phaantom of the opera is there"
 "primadona once more"
 "nothing in my way"
-"if you wanna cry"
+"nothing here else to say"
