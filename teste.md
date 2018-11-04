@@ -11,3 +11,4 @@
 "nothing in my way"
 "nothing here else to say"
 "stevie wonder"
+"if i die let me die"
